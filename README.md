@@ -1,0 +1,2 @@
+# crack_THEMOYprogramm-
+Внутри
